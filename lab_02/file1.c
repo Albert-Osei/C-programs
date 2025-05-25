@@ -1,0 +1,1 @@
+Hello, writing code can be difficult sometimes but it's definitely worth the thrill that comes with it.
